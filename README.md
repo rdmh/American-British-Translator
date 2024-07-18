@@ -1,2 +1,3 @@
-# American-British-Translator
-American British Translator
+# American British Translator
+
+#### Livhuwani Prince Maphupha
